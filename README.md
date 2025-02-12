@@ -1,2 +1,4 @@
 # Miró
 Entrega de wireframe ecommerce personal 
+Michael Guerra 
+https://miro.com/welcomeonboard/OHVhcis1d3h2ODcvUVR6TXlKMyt4MUtzbVUvblplZkk4emtuTUsvM096TXdQbjdXSTRDSjRVRjNSYlpGcDIyNUhpcGt3S0JueTNMYzRkdmpZRnRsM3BqcTZvZ3hIRVJteHhUQlRCN1l3WlpacitBdmFhMTUwMytvVlc5YVlaYXhBS2NFMDFkcUNFSnM0d3FEN050ekl3PT0hdjE=?share_link_id=771804361242
